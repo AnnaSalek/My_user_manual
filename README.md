@@ -1,2 +1,2 @@
 # My_user_manual
-A short user manual decribing how to (relatviely easy) deal with me :)n 
+A short user manual decribing how to (relatvely easy) deal with me :) 
