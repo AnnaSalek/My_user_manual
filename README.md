@@ -1,2 +1,2 @@
 # My_user_manual
-I'm ALWAYS paying attention even when you think I'm not :)
+A short user manual decribing how to (relatviely easy) deal with me :)n 
